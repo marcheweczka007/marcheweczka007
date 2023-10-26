@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @marcheweczka007
 - 👀 I’m interested in UX, design and coding.
-- 🌱 I’m currently studying at Edinburgh Napier university 2nd year (UXD) and building my portfolio website.
+- 🌱 I’m currently studying at Edinburgh Napier university 4nd year (UXD) and building my portfolio website.
 - 💞️ I’m looking to collaborate on design/ux projects and improve my coding.
 - 📫 How to reach me email me on zuzanna.marchewka1@gmail.com
 
